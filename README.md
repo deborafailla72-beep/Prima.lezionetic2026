@@ -1,1 +1,0 @@
-# Prima.lezionetic2026
